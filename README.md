@@ -2,8 +2,15 @@
 
 Horario y dónde ver por TV hoy el Real Madrid - FC Barcelona: el Clásico de la final de la Supercopa de España 2025 de fútbol
 Se disputa la gran final de la Supercopa de España, donde el FC Barcelona y el Real Madrid se verán las caras por el título por tercera edición consecutiva.
-Real Madrid - Barcelona, en directo | Final de la Supercopa de España
-Disfruta de la mejor selección del deporte con Movistar Plus+ por solo 9,99 € ¡Activa aquí tu cuenta!
+
+📺📱👉◄◄🔴 https://tinyurl.com/3nbjc3m7
+
+📺📱👉◄◄🔴 https://tinyurl.com/3nbjc3m7
+
+📺📱👉◄◄🔴 https://tinyurl.com/3nbjc3m7
+
+📺📱👉◄◄🔴 https://tinyurl.com/3nbjc3m7
+
 
 Actualizado a 12/01/2025 18:14 CET
 Se disputa la gran final de la Supercopa de España, donde el FC Barcelona y el Real Madrid se verán las caras por el título por tercera edición consecutiva. Los azulgranas derrotaron en semifinales al Athletic Club (2-0), mientras que los blancos hicieron lo mismo contra el RCD Mallorca (3-0). 
